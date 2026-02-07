@@ -63,7 +63,7 @@ They feared **HUMAN JUDGMENT** more than **ALLAH’S JUDGMENT**.
 
 ---
 
-## ⚡ Allah’s Devastating Question
+## ⚡ Allah’s Crushing Question
 
 > **“DO YOU NOT USE YOUR REASON?”**
 
